@@ -72,6 +72,26 @@ Our actions change our circumstances and affect other people. Those consequences
 
 This is a useful model, not a universal or strictly linear formula. The parts influence one another in multiple directions, and the surrounding world helps shape the process.
 
+### The self as a process
+
+You have a hand, but you are not simply your hand. You have a brain, but you are not reducible to one body part. Thoughts arise within you, but you are not every thought that passes through your mind.
+
+A hand is part of a larger living body. The brain is part of the living system through which perception, memory, emotion, and thought take place. Thoughts are events within that system: they arise from experience, biology, memory, attention, and the conditions around us. They can influence what we do, but they do not have to define the whole of who we are.
+
+This is not necessarily a claim that there is a separate self hidden somewhere beyond the body. It points in another direction: perhaps the self is not a single object or isolated component at all, but an ongoing process formed through the relationships between body, mind, experience, other people, and the world.
+
+The parts matter, but no single part tells the whole story.
+
+This connects with the wider pattern. Just as a cell is part of an organism, and an organism is part of an ecosystem, a thought is part of a mind, and a person is part of a web of relationships and conditions. Each level emerges through connections between parts, while also influencing those parts in return.
+
+Some Buddhist traditions describe this through **non-self**: the idea that what we call a self is not a permanent, independent essence. Other philosophical and psychological approaches explore identity as something embodied, changing, relational, and continually shaped by experience. These approaches are not identical, but they raise a related question:
+
+**If everything that makes up the self is changing and interdependent, what exactly are we calling “I”?**
+
+Perhaps we are not a fixed thing moving through the process. Perhaps we are one of the processes: continually formed, affected, and re-formed through everything we encounter.
+
+That does not make our experiences unreal or our choices meaningless. It means that no single thought, feeling, memory, body part, role, or moment has to contain the entirety of a person.
+
 ### The chasing of the void
 
 Sometimes desire becomes disconnected from fulfillment.
