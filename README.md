@@ -1,6 +1,10 @@
 # The Nameless Way
 ### The continuous cycle of creation, causality, and transformation
 
+> **About the development of this document**
+>
+> This document has been developed iteratively with AI assistance. AI tools have been used as collaborators in exploring ideas, finding and comparing related concepts, organizing material, researching references, and revising the writing. The document reflects an ongoing human-directed process of questioning, selection, interpretation, and refinement; it should not be read as a text produced entirely without AI, nor as an authoritative or finished account. AI-assisted research and summaries can contain mistakes or flatten important differences, so readers are encouraged to consult the cited sources and form their own interpretations. The intention is to offer a starting point for exploration that readers can examine, challenge, and continue developing with or without AI.
+
 There is a recurring pattern throughout existence: things give rise to other things, things interact, and everything continually changes form.
 
 Thoughts generate thoughts. Ideas inspire ideas. Cells reproduce. Plants produce seeds. Animals reproduce. Humans bring new humans into the world, teach them, influence them, and pass along pieces of themselves.
