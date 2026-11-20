@@ -7,15 +7,17 @@
 
 ## A few things to remember
 
-**Observation is the first and most important tool for freedom.** Notice. Witness what is happening within you and around you. If you remember nothing else, remember to observe. Before accepting a thought as truth, reacting to a feeling, or becoming absorbed in a pattern, give yourself the chance to see it. Observation does not require immediate judgment or action; it creates room to understand what is happening and how you are participating in it.
+**Observation is the first and most important tool for freedom.** Notice. Witness what is happening within you and around you. If you remember nothing else, remember to observe. Before accepting a thought as truth, reacting to a feeling, or becoming absorbed in a pattern, give yourself the chance to see it. Observation does not require immediate judgment, action, or understanding. Understanding can become an endless process: each answer opens another question, and the effort to resolve every thought can become another struggle. Observation is quieter. You do not have to fight a thought, follow it, or solve it; you can simply witness it. It is the difference between standing in the storm and standing in the eye of it.
 
 **Acceptance is another tool, practiced in degrees.** Allow things to be seen as they are, including your own thoughts, feelings, needs, limits, and circumstances. Acceptance is not approval, resignation, or a refusal to change what can be changed. It is the willingness to stop denying what is already here, so that your response can begin from a clearer place.
 
 **Surrender may be the final tool when it is needed for freedom.** Sometimes the struggle to hold, force, or control something becomes another form of confinement. Surrender can mean loosening that grip and releasing what cannot be controlled. It is not the same as abandoning responsibility or accepting mistreatment; it is recognizing when continued resistance is only keeping you bound to what you are trying to escape.
 
+**Compassion is presence without a demand.** It does not require understanding another person's experience completely, explaining it, or feeling pity. It can simply mean being here with them, allowing them to be as they are without turning their experience into a problem you must solve. Like observation, this kind of presence does not need to become an exhausting effort.
+
 **Gratitude can begin with anything you are able to notice.** In any moment, there may be something—however small—that you can choose to appreciate. Gratitude does not erase difficulty or require pretending that everything is good. It begins with observation: seeing what is present that might otherwise pass unnoticed. The more fully we notice, the more opportunities we may find for gratitude.
 
-These practices are connected. Observation makes acceptance possible; acceptance can reveal what we are still holding; surrender can loosen the hold when it is no longer serving us; and gratitude turns attention toward what can be valued in the present. They are not rigid steps or a promise that every difficulty can be resolved by attitude. They are ways of meeting experience with greater awareness and freedom.
+These practices are connected. Observation allows us to witness without getting caught in the effort to explain; acceptance allows what is present to be present; surrender can loosen the hold when it is no longer serving us; compassion offers presence without requiring a solution; and gratitude turns attention toward what can be valued in the present. They are not rigid steps or a promise that every difficulty can be resolved by attitude. They are ways of meeting experience with greater awareness and freedom.
 
 There is a recurring pattern throughout existence: things give rise to other things, things interact, and everything continually changes form.
 
