@@ -27,6 +27,14 @@ And let yourself **play**. Explore what feels pleasant, interesting, funny, or s
 
 This connects self-care to the wider pattern of intention and attention: what we repeatedly offer attention to can shape how we relate to ourselves. The gesture may be small, but it can express a larger idea—that affection is not only something to seek or receive; it is also something we can learn to give.
 
+### Silence, rest, and play
+
+Silence and rest are related, but they are not the same. Silence is making room to notice without immediately filling every moment with thought. Rest is allowing ourselves to stop exerting effort and recover. Sometimes the most useful response is not another question or explanation, but to sit in silence and rest. The answers may become clearer when we stop chasing them.
+
+Sleep shows another side of this process. The brain does not simply switch off; during sleep, it remains active, helping organize and strengthen memories and process experiences. In a loose sense, it can be understood as revisiting and working with what we have given our attention to. It is not literally running a complete simulation of the day, but it reminds us that development does not happen only through conscious effort. Sometimes we grow by allowing the mind and body time to work without our direction.
+
+Play offers another way to loosen a familiar reaction. It is easy to notice what is negative and fall into frustration or judgment. We do not have to pretend that something unpleasant is good, or force ourselves to be positive. We can instead become curious: is there another way to approach this? Can we find humor, experiment with a different response, or discover something interesting in the moment? Play turns an automatic reaction into room for choice. It is not another obligation to be happy; it is permission to respond differently.
+
 **Gratitude can begin with anything you are able to notice.** In any moment, there may be something—however small—that you can choose to appreciate. Gratitude does not erase difficulty or require pretending that everything is good. It begins with observation: seeing what is present that might otherwise pass unnoticed. The more fully we notice, the more opportunities we may find for gratitude.
 
 These practices are connected. Observation allows us to witness without getting caught in the effort to explain; acceptance allows what is present to be present; surrender can loosen the hold when it is no longer serving us; compassion offers presence without requiring a solution; and gratitude turns attention toward what can be valued in the present. They are not rigid steps or a promise that every difficulty can be resolved by attitude. They are ways of meeting experience with greater awareness and freedom.
