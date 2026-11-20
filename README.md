@@ -34,8 +34,10 @@ These traditions are not identical, and their explanations differ. The point is 
 The resemblance becomes clearer when we look beyond traditions that explicitly describe a cosmic cycle. Across different periods and cultures, people have returned to questions about how to live, how to relate to change, how intention shapes action, how a person becomes who they are, and how an individual belongs to something larger.
 
 - **Stoicism —** The distinction between what is within our agency and what is not, and the practice of examining impressions before assenting to them. Stoicism does not require indifference to every external thing: health, resources, and security can be preferred, while virtue and the quality of one's choices remain central. This offers a useful counterpoint to manifestation: we can pursue a better material life without making our entire well-being dependent on controlling every outcome. [Stanford Encyclopedia of Philosophy: Stoicism](https://plato.stanford.edu/entries/stoicism/) and [Epictetus](https://plato.stanford.edu/entries/epictetus/).
+- **Epicureanism —** Pleasure is not simply the pursuit of every appetite. Epicurus distinguishes natural and necessary desires from desires that are empty or difficult to satisfy, and places unusual weight on tranquility, freedom from distress, friendship, and the ability to enjoy simple things. This offers a counterweight to systems that continually manufacture new wants: perhaps a good life depends partly on learning what does not need to be fed. Epicureanism is not a rejection of pleasure, but an inquiry into which pleasures make life freer and more satisfying. [Stanford Encyclopedia of Philosophy: Epicurus](https://plato.stanford.edu/entries/epicurus/).
 - **Confucian self-cultivation —** A person develops through practice, relationships, learning, ritual, and responsibility. The self is not formed in isolation; how we act helps shape the family and community around us, which in turn shape us. [Oxford Academic: The individual and self-cultivation in Confucius](https://academic.oup.com/book/963/chapter-abstract/137827228).
 - **Carl Jung and analytical psychology —** Individuation describes a continuing process of becoming more aware of the different influences, conflicts, symbols, and patterns shaping a person. Jung's ideas about archetypes and the collective unconscious offer one way to think about recurring symbolic patterns across human stories. The stronger claim that archetypes are inherited structures of a shared unconscious remains debated; recurring symbols can also be explored through shared human experiences, metaphor, culture, and storytelling. [International Association for Analytical Psychology: Analytical Psychology](https://iaap.org/jung-analytical-psychology/analytical-psychology/) and [The Collective Unconscious](https://iaap.org/jung-analytical-psychology/short-articles-on-analytical-psychology/the-collective-unconscious-2/).
+- **The Psychonaut Field Manual —** A contemporary visual artifact from psychonaut culture that can be considered as an attempt to map inner experience and the language people use to describe shifts in awareness. In this essay it serves as a cultural and conceptual reference, not as an authoritative map of the mind or a set of practical instructions. Its inclusion does not establish that altered-state interpretations are objectively true, universally shared, or scientifically validated. Specific claims about the manual's contents have not been independently assessed here.
 - **William James and pragmatist psychology —** Repeated actions and thoughts become habits, shaping what we notice and how readily we respond. The paths we repeatedly take can become easier to travel, much like water shaping a channel. This connects individual habit with the wider pattern of feedback and repetition. [Stanford Encyclopedia of Philosophy: William James](https://plato.stanford.edu/entries/james/).
 - **Modern psychology of planning —** Research on implementation intentions studies how a chosen goal can be connected to a specific cue and response: an "if this happens, then I will do that" plan. This is a grounded example of intention becoming more likely to influence action through attention, preparation, and repeated behavior. It does not require a supernatural explanation. [Annual Review of Psychology: Psychology of Planning](https://www.annualreviews.org/content/journals/10.1146/annurev-psych-021524-110536).
 
@@ -178,6 +180,54 @@ This also connects with positive expectation. Approaching life with curiosity an
 The Stoic perspective adds another useful balance: distinguish the quality of our choices from outcomes we cannot fully command, while still making reasonable efforts to improve our circumstances. Wanting money, comfort, freedom, and enjoyable experiences is not a failure of philosophy. The question is how to pursue them without handing them complete authority over our sense of worth or direction.
 
 Perhaps the intention does not need to specify every destination. It can describe the conditions one hopes to cultivate and the direction one wishes to move: **a life with more freedom, security, curiosity, connection, and possibility.**
+
+## Attention, energy, and the economy of reaction
+
+Intention gives a direction; attention repeatedly returns us to it. What we attend to becomes more present in our experience. What we react to can occupy our thoughts, shape our next actions, and invite further reactions from other people. In this sense, attention is not passive: it is one of the ways we participate in the patterns around us.
+
+This is where the idea that **everything is intention and energy** becomes useful as a philosophical lens, provided we are careful about what we mean by energy. In spiritual and esoteric language, energy can refer to vitality, emotional charge, will, influence, or the felt force of an interaction. In physics, energy has a precise measurable meaning. These uses should not be treated as interchangeable. We can explore the spiritual metaphor without presenting it as a scientific description.
+
+### The attention economy
+
+Attention is limited. Every person, institution, platform, movement, and story competes in some way to become noticeable and meaningful. In the commercial attention economy, platforms and creators compete to attract and retain attention, often because attention can be converted into advertising revenue, influence, status, or other forms of value. Attention can also accumulate: yesterday's visibility can make tomorrow's message easier to amplify.
+
+But the same pattern can be considered beyond commerce. A conflict, identity, ideology, fandom, fear, or public controversy can continue to grow in significance because people keep returning to it. Attention does not automatically mean agreement. Praise, criticism, fascination, outrage, and opposition can all keep something central in a person's awareness and in a group's conversation.
+
+This does not mean that every reaction is harmful, or that withdrawing attention is always the right response. Some things deserve sustained attention: injustice, care, relationships, learning, and problems that require collective action. The question is whether our attention is serving an intention we have chosen, or whether we are being pulled into a cycle that mainly reproduces itself.
+
+### Pendulums, egregores, and collective patterns
+
+Vadim Zeland's **Reality Transurfing** describes **pendulums** as collective structures formed and sustained by the shared attention and emotional reactions of groups. In this framework, a pendulum gains momentum when people feed it through participation, including through conflict and resistance. Some Transurfing explanations connect the idea to the esoteric concept of an **egregore**: a collective thought-form or group-generated presence.
+
+The resemblance is interesting even if we do not accept the metaphysical explanation literally. A group can develop shared language, habits, emotional expectations, incentives, and rules that begin to shape the behavior of its members. The pattern can outlast any one participant. People may reinforce it without consciously choosing to do so. In social science, we can examine these dynamics through group identity, social norms, collective behavior, institutions, and feedback loops, without assuming that an invisible energy-being exists.
+
+The pendulum is therefore useful as both an esoteric concept and a metaphor for a self-reinforcing social pattern. A person may oppose a movement while still allowing it to determine what they think about, how they feel, and what they do next. Resistance can be necessary, but constant reactive engagement can also keep the object of resistance at the center of one's life.
+
+The practical philosophical question is not simply, "What should I ignore?" It is: **What am I choosing to give my attention to, what does that attention reinforce, and what intention does it serve?** Disengagement can sometimes mean refusing an automatic reaction while still taking deliberate, proportionate action where action matters.
+
+### Energy as participation
+
+The metaphor of feeding something with attention can describe several observable processes:
+
+- Repetition makes a thought, habit, story, or concern easier to return to.
+- Emotional reactions can make an issue more salient and memorable.
+- Social feedback can reward some behaviors and discourage others.
+- Shared attention can give a group, idea, or institution greater visibility and influence.
+- Repeated choices can strengthen the conditions that make similar choices more likely in the future.
+
+These mechanisms do not prove that attention transfers a literal substance or that thought alone controls external events. They show how participation can have consequences. Our attention is limited, our reactions have effects, and the patterns we repeatedly reinforce can become part of the environment we later encounter.
+
+The idea also has a liberating side. We do not have to give every provocation our full emotional participation. We can care without being consumed, disagree without making opposition our identity, and notice a pattern without automatically reproducing it.
+
+### Choosing what deserves to be fed
+
+Epicureanism asks which desires genuinely contribute to a good life. Stoicism asks which judgments and actions remain within our agency. Reality Transurfing asks whether we are feeding a pendulum. The modern attention-economy perspective asks who benefits when our attention is captured and retained.
+
+These frameworks are not saying the same thing, but they converge on a useful question: **what deserves our limited participation?**
+
+Attention can be spent on endless comparison, manufactured urgency, status contests, and conflicts that offer no meaningful path forward. It can also be invested in friendship, creativity, curiosity, learning, rest, care, and the slow work of changing material conditions.
+
+Perhaps freedom is not the ability to control everything that receives our attention. It is the growing ability to notice where our attention goes, understand what pulls it, and choose more deliberately what we continue to nourish.
 
 ## Perception and the framework of understanding
 
