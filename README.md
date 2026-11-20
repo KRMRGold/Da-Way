@@ -15,6 +15,18 @@
 
 **Compassion is presence without a demand.** It does not require understanding another person's experience completely, explaining it, or feeling pity. It can simply mean being here with them, allowing them to be as they are without turning their experience into a problem you must solve. Like observation, this kind of presence does not need to become an exhausting effort.
 
+### Self-care as a small ritual
+
+Care does not always have to arrive from somewhere outside us. Sometimes we can notice a small desire for comfort or affection and respond to it directly, without turning it into another demand or waiting for someone else to notice.
+
+Consider an itch. The automatic response may be to scratch it immediately. Instead, pause and experiment: could a gentle massage or a little pressure nearby feel soothing? The point is not that scratching is always wrong, or that massage will solve every itch. It is the moment of noticing an impulse and discovering another possible response.
+
+The same idea can be explored through ordinary gestures of affection. If you want to feel cared for, try giving yourself some of that attention: massage your scalp, run your fingers through your hair, play with it, rub your shoulders or back, or rest a hand somewhere that feels comforting. These small gestures can become personal rituals—not because they have to produce a particular result, but because they make room for attention, tenderness, and presence.
+
+And let yourself **play**. Explore what feels pleasant, interesting, funny, or simply different. There does not have to be a goal, improvement metric, or explanation. Play can be a way of relating to yourself with curiosity rather than treating yourself as a problem to fix. A ritual can be as ordinary as taking a moment to notice what you want, trying something gentle, and seeing how it feels.
+
+This connects self-care to the wider pattern of intention and attention: what we repeatedly offer attention to can shape how we relate to ourselves. The gesture may be small, but it can express a larger idea—that affection is not only something to seek or receive; it is also something we can learn to give.
+
 **Gratitude can begin with anything you are able to notice.** In any moment, there may be something—however small—that you can choose to appreciate. Gratitude does not erase difficulty or require pretending that everything is good. It begins with observation: seeing what is present that might otherwise pass unnoticed. The more fully we notice, the more opportunities we may find for gratitude.
 
 These practices are connected. Observation allows us to witness without getting caught in the effort to explain; acceptance allows what is present to be present; surrender can loosen the hold when it is no longer serving us; compassion offers presence without requiring a solution; and gratitude turns attention toward what can be valued in the present. They are not rigid steps or a promise that every difficulty can be resolved by attitude. They are ways of meeting experience with greater awareness and freedom.
