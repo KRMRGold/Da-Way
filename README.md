@@ -234,6 +234,18 @@ The pendulum is therefore useful as both an esoteric concept and a metaphor for 
 
 The practical philosophical question is not simply, "What should I ignore?" It is: **What am I choosing to give my attention to, what does that attention reinforce, and what intention does it serve?** Disengagement can sometimes mean refusing an automatic reaction while still taking deliberate, proportionate action where action matters.
 
+### The altar of the everyday
+
+Walk down a grocery store aisle. Before you stands an altar. An altar to capitalism, perhaps, or to something larger than any one economic system. The shelves are arranged with symbols, colors, names, promises, and associations. Products can come to represent comfort, status, health, belonging, convenience, nostalgia, or an imagined better version of ourselves. We encounter these symbols so routinely that their influence can become difficult to notice.
+
+There is a useful wordplay here: **altar, alter, alteration**. An altar is a place where meaning is concentrated through objects, symbols, repetition, and ritual. To alter is to change; an alteration changes the form of something. The everyday environment can become a site where our perceptions, desires, and habits are continually shaped. The comparison is not that every grocery aisle is literally a sacred space, but that ordinary life is full of symbolic arrangements that invite repeated attention and participation.
+
+This is also where occult language becomes relevant rather than merely decorative. Depending on the tradition, **sigils** may be understood as symbols charged with intention; **thoughtforms** as creations of mind or imagination that acquire a degree of apparent independence; **egregores** as collective forms sustained by a group's shared attention and participation; and **pendulums**, in Reality Transurfing, as patterns that draw people into recurring reactions. These concepts come from different frameworks and should not be treated as synonyms. Nor do psychological or social explanations settle every metaphysical claim made about them. They do, however, offer different ways to ask how symbols, intention, repetition, and collective attention participate in shaping experience.
+
+A familiar observation about capitalism is that its end can be harder for people to imagine than the end of the world. That observation can itself become a pendulum: repeated, debated, identified with, rejected, and circulated until even arguments against it keep it present. This does not make the observation false or unimportant. It makes the pattern worth noticing. An idea can describe a self-reinforcing system while also becoming something that reproduces itself through the attention it attracts.
+
+The question is not only whether a thoughtform, pendulum, or egregore exists in a literal metaphysical sense. It is also how we participate in patterns that seem to take on a life of their own. What symbols do we repeatedly encounter? Which meanings have we internalized? What do we reproduce without noticing? We are not outside these patterns, looking in. We participate in them, and they participate in shaping us. But participation does not have to mean unconscious repetition.
+
 ### Energy as participation
 
 The metaphor of feeding something with attention can describe several observable processes:
